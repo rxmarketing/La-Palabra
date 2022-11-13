@@ -1,4 +1,4 @@
-## 2 Corintios 2
+## 2 Corintios 3
 
 1  
 Así que decidí que no les causaría tristeza con otra visita dolorosa.

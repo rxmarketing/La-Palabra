@@ -1,76 +1,84 @@
 ## 2 Corintios 3
 
 1  
-Así que decidí que no les causaría tristeza con otra visita dolorosa.
+¿Otra vez comenzamos a elogiarnos a nosotros mismos? ¿Acaso somos como otros,
+que necesitan llevarles cartas de recomendación o que les piden que se escriban
+tales cartas en nombre de ellos? ¡Por supuesto que no!
 
 2  
-Pues, si yo les causo tristeza, ¿quién me alegrará a mí? Por cierto, no será
-alguien a quien yo haya entristecido.
-
+La única carta de recomendación que necesitamos son ustedes mismos. Sus vidas
+son una carta escrita en nuestro corazón; todos pueden leerla y reconocer el
+buen trabajo que hicimos entre ustedes.
+  
 3  
-Por eso les escribí como lo hice, para que, cuando llegue, no me causen
-tristeza los mismos que deberían darme la más grande alegría. Seguramente,
-todos ustedes saben que mi alegría proviene de que estén alegres.
+Es evidente que son una carta de Cristo que muestra el resultado de nuestro
+ministerio entre ustedes. Esta «carta» no está escrita con pluma y tinta, sino
+con el Espíritu del Dios viviente. No está tallada en tablas de piedra, sino en
+corazones humanos.
 
 4  
-Escribí aquella carta con gran angustia, un corazón afligido y muchas lágrimas.
-No quise causarles tristeza, más bien quería que supieran cuánto amor tengo por
-ustedes.
+Estamos seguros de todo esto debido a la gran confianza que tenemos en Dios por
+medio de Cristo.
 
 5  
-No exagero cuando digo que el hombre que causó todos los problemas los lastimó
-más a todos ustedes que a mí.
+No es que pensemos que estamos capacitados para hacer algo por nuestra propia
+cuenta. Nuestra aptitud proviene de Dios.
 
 6  
-La mayoría de ustedes se le opusieron, y eso ya fue suficiente castigo.
+Él nos capacitó para que seamos ministros de su nuevo pacto. Éste no es un
+pacto de leyes escritas, sino del Espíritu. El antiguo pacto escrito termina en
+muerte; pero, de acuerdo con el nuevo pacto, el Espíritu da vida.
 
 7  
-No obstante, ahora es tiempo de perdonarlo y consolarlo; de otro modo, podría
-ser vencido por el desaliento.
+El camino antiguo, con leyes grabadas en piedra, conducía a la muerte, aunque
+comenzó con tanta gloria que el pueblo de Israel no podía mirar la cara de
+Moisés. Pues su rostro brillaba con la gloria de Dios, aun cuando el brillo ya
+estaba desvaneciéndose.
 
 8  
-Así que ahora los insto a que reafirmen su amor por él.
+¿No deberíamos esperar mayor gloria dentro del nuevo camino, ahora que el
+Espíritu Santo da vida?
 
 9  
-Les escribí como lo hice para probarlos y ver si cumplirían mis instrucciones
-al pie de la letra.
+Si el antiguo camino, que trae condenación, era glorioso, ¡cuánto más glorioso
+es el nuevo camino, que nos hace justos ante Dios!
 
 10  
-Si ustedes perdonan a este hombre, yo también lo perdono. Y, cuando yo perdono
-lo que necesita ser perdonado, lo hago con la autoridad de Cristo en beneficio
-de ustedes,
+De hecho, aquella primera gloria no era para nada gloriosa comparada con la
+gloria sobreabundante del nuevo camino.
 
 11  
-para que Satanás no se aproveche de nosotros. Pues ya conocemos sus
-maquinaciones malignas.
+Así que, si el antiguo camino, que ha sido reemplazado, era glorioso, ¡cuánto
+más glorioso es el nuevo, que permanece para siempre!
 
 12  
-Cuando llegué a la ciudad de Troas para predicar la Buena Noticia de Cristo, el Señor me abrió una puerta de oportunidad.
+Ya que este nuevo camino nos da tal confianza, podemos ser muy valientes.
 
 13  
-Pero no sentía paz, porque mi querido hermano Tito todavía no había llegado con
-un informe de ustedes. Así que me despedí y seguí hacia Macedonia para
-buscarlo.
-
+No somos como Moisés, quien se cubría la cara con un velo para que el pueblo de
+Israel no pudiera ver la gloria, aun cuando esa gloria estaba destinada a
+desvanecerse.
+ 
 14  
-Pero, ¡gracias a Dios!, él nos ha hecho sus cautivos y siempre nos lleva en
-triunfo en el desfile victorioso de Cristo. Ahora nos usa para difundir el
-conocimiento de Cristo por todas partes como un fragante perfume.
+Pero la mente de ellos se endureció y, hasta el día de hoy, cada vez que se lee
+el antiguo pacto, el mismo velo les cubre la mente para que no puedan entender
+la verdad. Y este velo puede quitarse solamente al creer en Cristo.
 
 15  
-Nuestras vidas son la fragancia de Cristo que sube hasta Dios. Pero esta
-fragancia se percibe de una manera diferente por los que se salvan y los que se
-pierden.
-
+Efectivamente, incluso hoy en día, cuando leen los escritos de Moisés, tienen
+el corazón cubierto con ese velo y no comprenden.
+ 
 16  
-Para los que se pierden, somos un espantoso olor de muerte y condenación. Pero,
-para aquellos que se salvan, somos un perfume que da vida. ¿Y quién es la
-persona adecuada para semejante tarea?
+Pero, cuando alguien se vuelve al Señor, el velo es quitado.
 
 17  
-Ya ven, no somos como tantos charlatanes que predican para provecho personal.
-Nosotros predicamos la palabra de Dios con sinceridad y con la autoridad de
-Cristo, sabiendo que Dios nos observa.
+Pues el Señor es el Espíritu y, donde está el Espíritu del Señor, allí hay
+libertad.
+
+18  
+Así que, todos nosotros, a quienes nos ha sido quitado el velo, podemos ver y
+reflejar la gloria del Señor. Y el Señor, quien es el Espíritu, nos hace más y
+más parecidos a él a medida que somos transformados a su gloriosa imagen.
 
 
 

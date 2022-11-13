@@ -51,6 +51,7 @@ Cuando llegué a la ciudad de Troas para predicar la Buena Noticia de Cristo, el
 Pero no sentía paz, porque mi querido hermano Tito todavía no había llegado con
 un informe de ustedes. Así que me despedí y seguí hacia Macedonia para
 buscarlo.
+
 14  
 Pero, ¡gracias a Dios!, él nos ha hecho sus cautivos y siempre nos lleva en
 triunfo en el desfile victorioso de Cristo. Ahora nos usa para difundir el

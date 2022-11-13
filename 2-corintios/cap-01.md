@@ -1,9 +1,9 @@
-##2 Corintios 1##
+## 2 Corintios 1 
   
-**1**
+**1
 Yo, Pablo, elegido por la voluntad de Dios para ser un apóstol de Cristo Jesús,
 escribo esta carta junto con nuestro hermano Timoteo. Va dirigida a la iglesia
-de Dios en Corinto y a todo su pueblo santo que está en toda Grecia.*
+de Dios en Corinto y a todo su pueblo santo que está en toda Grecia.
 
 2
 Que Dios nuestro Padre y el Señor Jesucristo les den gracia y paz.
